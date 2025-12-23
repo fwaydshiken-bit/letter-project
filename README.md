@@ -1,2 +1,6 @@
-# letter-project
-"i hope you read this, even if it's too late."
+Merry Christmas! I hope this letter finds you well. I really miss you, and I hope you have a joyful and peaceful Christmas, full of love and happiness.
+I just want to say thank you for being my person. You were more than just someone I loved. You were my person, my home, my everything. You were there for me in ways I never even had to ask for, and that meant so much. You loved me when I didn’t know how to love myself, stood by me when I felt lost, and made me believe that love could be something safe and real.
+I loved you truly, and I still do. I still remember how you treated me so well: the good morning and good night texts, daily compliments, “I miss you” messages, daily updates, and our late-night talks, the way you gave me all your time.
+I just want you to know that you’ll always have a special place in my heart. I’m thankful for the memories we shared., you made me the happiest person for a short time.
+Nakakahiya man sabihin, pero I’m still hoping. I really want to work things out between us. I’d rather fix things with you kasi than walk away. I don’t want to lose you, and I don’t want to live with regrets.
+I hope this Christmas brings you happiness and warmth, and that you feel loved and appreciated today and always.
